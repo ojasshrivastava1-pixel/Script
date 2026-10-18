@@ -1,0 +1,45 @@
+# Draft 01: The Japanese Tiger Paintings and Its Weirdness
+
+Typed up from four handwritten notebook pages (photos in `draft-01-pages/`). The wording and spelling are kept exactly as written. ~~Strikethrough~~ = crossed out on the page. [square brackets] = the author's own bracketed notes.
+
+---
+
+<!-- Page 1 (draft-01-pages/page-1.jpg) -->
+
+**The japanese Tiger paintings and its weirdness.**
+
+Pointers :-
+
+**The problem :-** Japan never had a native tiger population so they never saw how an actual tiger looked like.
+
+**The Need :-** The warlords and the Kings still wanted tiger paintings as a way of intimidation for the general audience. Dragons were that means of intimidation for the sky, and tigers whoose roar was said to raise the wind was the king of the Land.
+
+**The solution :-** The Kano school got this job of painting tigers on the wall as a way of intimidating the visitors. Their source?
+
+<!-- Page 2 (draft-01-pages/page-2.jpg) -->
+
+- Chinese and Korean paintings.
+- Tiger skins
+- House cats. [Tigers are cats after all.
+
+**What did they come up with :-**
+
+They came up with these flat looking tigers, with stripes and huge paws. and its all over japan. inside murals and paintings. And it did the job.
+
+**End :-** Japan got its first tiger in 1594, as a gift from Korea for a warlord. But the tiger never went to the painters who were painting them. So for almost 300 years
+
+<!-- Page 3 (draft-01-pages/page-3.jpg) -->
+
+people were supposed to get intimidated by paintings that were not even real. Back then paintings were not just art, they ~~In 1886~~ were means of propoganda, power and spreading emotions even though the paintings were not even accurate or real.
+
+[We can choose to end it here, we can write some more lines on how paintings were used back then, basically their psychological impact].
+
+**Extra :-** [Need to decide to put or not].
+
+In 1886, an italian circus came to kyoto with real tigers. And Kishi Chikudo, the head of most famous family of
+
+<!-- Page 4 (draft-01-pages/page-4.jpg) -->
+
+tiger painters saw them in real life. He was so stunned that it nearly consumed him. He went day after day to look at them and his tigers in paintings, never looked the same again.
+
+After a lifetime, finally a japanese painted a real tiger.
